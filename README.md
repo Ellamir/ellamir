@@ -1,4 +1,4 @@
-# Tamara Wilder
+# Tam Wilder
 
 Wanderlust-stricken gamer, geek, dreamer, learner. 🐉RPG dragoness, 📚languages nerd, 💻newbie DEV. 🎐七転八起
 
